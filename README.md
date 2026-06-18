@@ -8,4 +8,4 @@ Meu Nome é _Andre_Morbeck_
 - Gosto de esportes em geral
 - Gosto de aprender palavras em outras linguas
 
-![](https://tenor.com/pt-BR/view/whats-a-high-tier-human-to-a-low-tier-god-gif-8463117868121302087)
+![](https://media.tenor.com/dXMI3I2hpEcAAAAC/whats-a-high-tier-human-to-a-low-tier-god.gif)
